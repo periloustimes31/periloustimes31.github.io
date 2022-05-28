@@ -22,6 +22,8 @@ We are surely living in perilous times!
 
 I recommend these resources to research what is really going on.
 
+[Kash Patel](https://fightwithkash.com/)
+
 [Patel Patriot](https://www.devolution.link)
 
 [Just Human](https://linktr.ee/just_human)
@@ -44,4 +46,5 @@ I recommend these resources to research what is really going on.
 
 [Prussiagate](https://prussiagate.substack.com)
 
-[Richard the Saint](https://u.pcloud.link/publink/show?code=kZS6tIXZtF85TjIcNT7hPWaI3CAxkuqvizPk)
+[Richard the Saint](https://truthsocial.com/@RichardTheSaint)
+
