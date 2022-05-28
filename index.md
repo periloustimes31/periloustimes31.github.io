@@ -1,7 +1,3 @@
-# Perilous Times
-
-## Information for living in perilous times
-
 *"This know also, that in the last days perilous times shall come." - 2 Timothy 3:1 (KJV)*
 
 ## Introduction
