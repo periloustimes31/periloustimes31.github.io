@@ -34,7 +34,7 @@ I recommend these resources to research what is really going on.
 
 [Slag](https://freeatlantis.com/@SLAG)
 
-[Patrick Gunnels](https://www.twitch.tv/pgunnels)
+[Patrick Gunnels](https://truthsocial.com/@realpgunnels)
 
 [Qaag](https://qagg.news/)
 
