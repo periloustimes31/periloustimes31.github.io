@@ -39,3 +39,6 @@ I recommend these resources to research what is really going on.
 [Andre](https://freeatlantis.com/@Andre)
 
 [Slag](https://freeatlantis.com/@SLAG)
+
+[Maximus Drake](https://t.me/Maximus_4EVR)
+
