@@ -30,17 +30,12 @@ I recommend these resources to research what is really going on.
 
 [Rattler Gator](https://jbwhiterattlergator.substack.com)
 
-[Andre](https://freeatlantis.com/@Andre)
-
-[Slag](https://freeatlantis.com/@SLAG)
-
 [Patrick Gunnels](https://truthsocial.com/@realpgunnels)
-
-[Qaag](https://qagg.news/)
-
-[Burning Bright](https://burningbright.substack.com)
-
-[Prussiagate](https://prussiagate.substack.com)
 
 [Richard the Saint](https://truthsocial.com/@RichardTheSaint)
 
+[Gregg Phillips - True the Vote](https://truthsocial.com/@greggphillips)
+
+[Andre](https://freeatlantis.com/@Andre)
+
+[Slag](https://freeatlantis.com/@SLAG)
