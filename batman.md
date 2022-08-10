@@ -8,6 +8,8 @@ An independent journalist I follow named Kyle who goes by the handle "Just Human
 
 Here are the links from the post:
 
+https://rumble.com/v1fb91f-opening-monologue-and-first-half-of-commentscoverage-of-fbi-raid-of-mar-a-l.html
+
 <https://rumble.com/v14mg43-judgedoj-denial-of-foia-proves-trump-and-trump-org-are-fbi-assets.html>
 
 <https://butnothingshappening.com/trump-donald-trump/>
