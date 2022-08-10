@@ -9,8 +9,11 @@ An independent journalist I follow named Kyle who goes by the handle "Just Human
 Here are the links from the post:
 
 <https://rumble.com/v14mg43-judgedoj-denial-of-foia-proves-trump-and-trump-org-are-fbi-assets.html>
+
 <https://butnothingshappening.com/trump-donald-trump/>
+
 <https://butnothingshappening.com/category/fbi-informants/>
+
 <https://twitter.com/DawsonSField/status/1139226046744735749?s=20&t=HcJyIA9RzoMxWVU3KNQ_JQ>
 
 Here are screenshots if you can't access Truth Social:
