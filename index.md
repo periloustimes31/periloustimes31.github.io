@@ -36,9 +36,4 @@ I recommend these resources to research what is really going on.
 
 [Gregg Phillips - True the Vote](https://truthsocial.com/@greggphillips)
 
-[Andre](https://freeatlantis.com/@Andre)
-
-[Slag](https://freeatlantis.com/@SLAG)
-
-[Maximus Drake](https://t.me/Maximus_4EVR)
-
+[Burning Bright](https://burningbright.substack.com/)
