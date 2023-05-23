@@ -26,7 +26,7 @@ I recommend these resources to research what is really going on.
 
 [Brian Cates](https://riseofthenewmedia.com)
 
-[Duane Cates](https://freeatlantis.com/@DuaneCates)
+[Duane Cates](https://truthsocial.com/@DuaneCates)
 
 [Rattler Gator](https://jbwhiterattlergator.substack.com)
 
